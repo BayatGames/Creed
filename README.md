@@ -18,12 +18,11 @@ We believe that *how* we do things is as important as *what* we do. These princi
 
 ## Mindset & Being: The Foundation Within
 
-* **Seek Clarity.**
+* **Clarity of Intention** Move beyond mere wanting.
 * **Being precedes Doing.** Depth over volume.
 * **State over Circumstance.** Your inner state matters most.
 * **Embody the state of your realised intention.**
 * **Know Your Want.** Give it to yourself.
-* **Intend clearly.** Move beyond mere wanting.
 * **Neutrality is Potential.** Define meaning, create outcome.
 * **Find unity in duality.** Reconcile paradox.
 * **Challenges, not Problems.** Reframe perspective.
